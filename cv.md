@@ -1,4 +1,5 @@
-## Olivier Nocaudie
+## Olivier Nocaudie  
+![Me](https://raw.githubusercontent.com/bobrayEden/CV/master/Olivier_Nocaudie.jpg)
 
 #### Présentation
  * Docteur en Sciences du langage
