@@ -3,7 +3,7 @@
 
 #### Présentation
  * Docteur en Sciences du langage
- * Mail : o.nocaudie@googlemail.com  
+ * Mail : olivulle@yahoo.fr  
  * Tel : xx xx xx xx xx 
  * 34 ans
    
