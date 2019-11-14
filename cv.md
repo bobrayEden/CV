@@ -19,7 +19,7 @@
    **2012** Master Recherche _Linguistique Cognition Communication_  
    **2010** Master Professionnel _Apprentissage et Didactique du Français Langue Etrangère et Seconde_  
    **2008** Licence de Lettres Modernes  
-   **2003** Baccalaréat, _Série L_  
+   **2003** Baccalauréat, _Série L_  
 
 
 #### Expériences professionnelles
